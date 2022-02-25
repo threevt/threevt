@@ -1,3 +1,3 @@
-# racist
+# gang weed money
 ### Projects
-- fartnite
+- ukraine
